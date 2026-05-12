@@ -1,4 +1,4 @@
-#  
+#  custom evade Scripts is the best evade Script, featuring undetectable and unlimited stamina. Safe and powerful for all your needs.
 
 
 
